@@ -1,4 +1,2 @@
 # W
-
->FirstStep!
-$Y^Z$
+YXYdalaoNB
