@@ -1,4 +1,4 @@
 # W
 
 >FirstStep!
-$Y^Z$1
+$Y^Z$
